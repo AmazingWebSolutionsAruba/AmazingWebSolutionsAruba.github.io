@@ -1,7 +1,7 @@
 # AmazingWebSolutionsAruba.github.io
 
 
-Amazing Web Solutions Aruba We build efficient, user-friendly websites that help your business grow and connect with customers.
+Amazing Web Solutions in Aruba we build efficient, user-friendly websites that help your business grow and connect with customers.
 
 ⭐Thank you so much for watching If you enjoyed it, 
 please subscribe► Like 👍 , share 💌 , Connect with us!
